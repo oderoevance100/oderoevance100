@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on mindblowing projects
 - 📫 You can reach me through email:oderoevance2003@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns:he/him
 - ⚡ Fun fact:Evance is a Leadership and Lifestyle coach who helps individuals master their leadedship skills and behavior and also master the wisdom in relations. This is the reason of my existence.
 
 <!---
